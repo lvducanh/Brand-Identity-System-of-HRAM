@@ -5,4 +5,4 @@
 
 [BRAND GUIDELINE](https://drive.google.com/file/d/1_oX7xWCkErtBlVs9TXaFqvdx5bUMoY9o/view?usp=sharing)
 
-[SLIDE THUYẾT TRÌNH](https://docs.google.com/presentation/d/11mtuB2GApK6582guiKNRcQRQMv0p77yp/edit?usp=drive_link&ouid=105067415899115103905&rtpof=true&sd=true)
+[SLIDE THUYẾT TRÌNH](https://drive.google.com/file/d/1eRvMFkRJ6AQdJ67ltL1FdsvejdxH195i/view?usp=sharing)
