@@ -7,4 +7,4 @@
 
 [SLIDE THUYẾT TRÌNH](https://drive.google.com/file/d/1eRvMFkRJ6AQdJ67ltL1FdsvejdxH195i/view?usp=sharing)
 
-[POSTER](https://drive.google.com/file/d/1dtv7SJdIpPSR1cnAEoEKs3EG69HqDnce/view?usp=sharing)
+[POSTER A0](https://drive.google.com/file/d/1dtv7SJdIpPSR1cnAEoEKs3EG69HqDnce/view?usp=sharing)
