@@ -1,5 +1,5 @@
 # ĐỒ ÁN TỐT NGHIỆP-2026-LÊ VĂN ĐỨC ANH-2022601660
-[BÁO CÁO ĐỒ ÁN TỐT NGHIỆP](https://drive.google.com/file/d/1XABCx1MccqzWBrbAqS5PZToCHi1kKnfO/view?usp=sharing)
+[BÁO CÁO ĐỒ ÁN TỐT NGHIỆP](https://drive.google.com/file/d/1rdL03Civr9G26jHLIHA0RFbkjvU1gq5W/view?usp=sharing)
 
 [FILE THIẾT KẾ Ai](https://drive.google.com/file/d/1R4v8aLdKDhrcdFXBKeQgmQQU20_Y9OnL/view?usp=drive_link)
 
