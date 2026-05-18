@@ -3,8 +3,8 @@
 
 [FILE THIẾT KẾ Ai](https://drive.google.com/file/d/1R4v8aLdKDhrcdFXBKeQgmQQU20_Y9OnL/view?usp=drive_link)
 
-[BRAND GUIDELINE](https://drive.google.com/file/d/1_oX7xWCkErtBlVs9TXaFqvdx5bUMoY9o/view?usp=sharing)
+[BRAND GUIDELINE](https://drive.google.com/file/d/1OvJeYlX8qGu9QnTdqStic9u2jlHLea2x/view?usp=sharing)
 
 [SLIDE THUYẾT TRÌNH](https://drive.google.com/file/d/1eRvMFkRJ6AQdJ67ltL1FdsvejdxH195i/view?usp=sharing)
 
-[POSTER A0](https://drive.google.com/file/d/1dtv7SJdIpPSR1cnAEoEKs3EG69HqDnce/view?usp=sharing)
+[POSTER A0](https://drive.google.com/file/d/1I8MsmM_VROaEpnHhil4pVhAQqgriwLNz/view?usp=sharing)
